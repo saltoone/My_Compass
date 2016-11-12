@@ -1,6 +1,6 @@
 # My_Compass
 
-Needs to fix issues.
+Needs to fix issues for any Qs email me saltoone85@gmail.com.
 
 Android app
-From Aziz
+From sultan
